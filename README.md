@@ -11,7 +11,7 @@
 > - he / him / it's / itself, absolutely *no* feminine terms
 > - Selfshipper, fictionkin, psysical therian, otherkin (feel free to ask about it!!)
 > - MLM, FtM, Nebularomantic + Lithromantic
-> - ASD + IED, dealing with auditory and visual hallucinations 
+> - ASD + IED, unfortunately dealing with auditory and visual hallucinations 
 
 🪓 - <samp><ins>Interests:</ins></samp>
 > American Psycho, The Boys, Call of Duty, The Amazing Digital Circus, Team Fortress 2, The Pitt, South Park, Dialtown, Paw Patrol
