@@ -13,7 +13,7 @@
 
   🥩 - <samp><ins>Basic info:</ins></samp>
 > - he / him / it's / itself, absolutely *no* feminine terms, and don't call me a femboy.
-> - Selfshipper, fictionkin, psysical therian, otherkin (feel free to ask about it!!)
+> - Selfshipper, fictionkin, physical therian, otherkin (feel free to ask about it!!)
 > - MLM, FtM, Nebularomantic + Lithromantic
 > - ASD + IED, unfortunately dealing with auditory and visual hallucinations 
 
