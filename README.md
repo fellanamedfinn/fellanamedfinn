@@ -22,7 +22,7 @@
 
 
 🦴 - <samp><ins>Ponytown:</ins></samp>
-> - Usually sitting with friends, or my lovely boyfriend
+> - Usually sitting with friends, or in the CoD area on the safe server.
 > - I love to talk, I can just tend to be a little quiet :)
 > - Please don't fully cover me, but cuddles and hugs are appricated!!
 
