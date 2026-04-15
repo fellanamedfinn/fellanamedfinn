@@ -25,6 +25,7 @@
 > - Usually sitting with friends, or in the CoD area on the safe server.
 > - I love to talk, I can just tend to be a little quiet :)
 > - Please don't fully cover me, but cuddles and hugs are appricated!!
+> - Please whisper to me!! I'm off tab a lot, and feel terrible when I miss peoples messages :((
 
 🩸 - <samp><ins>Do NOT interact:</ins></samp>
 > - Under 15
