@@ -18,7 +18,8 @@
 > - ASD + IED, unfortunately dealing with auditory and visual hallucinations 
 
 🪓 - <samp><ins>Interests:</ins></samp>
-> American Psycho, The Boys, Call of Duty, The Amazing Digital Circus, Team Fortress 2, The Pitt, South Park, Dialtown, Paw Patrol, Fight Club, Rainbow Six Seige, Marvel Rivals, Family Guy, Mortal Combat, Red Dead Redemption 2, fighter jets, taxidermy, bones, bugs, old cars and technology, gun models, 
+> - Special interest: Military
+> - Basic interests: American Psycho, The Boys, Call of Duty, The Amazing Digital Circus, Team Fortress 2, The Pitt, South Park, Dialtown, Paw Patrol, Fight Club, Rainbow Six Seige, Marvel Rivals, Family Guy, Mortal Combat, Red Dead Redemption 2, The Last Of Us, Life Is Strange, Chilla's Art Games,fighter jets, taxidermy, bones, bugs, old cars and technology, gun models, analog horror, visual novels
 
 
 🦴 - <samp><ins>Ponytown:</ins></samp>
@@ -29,9 +30,8 @@
 
 🩸 - <samp><ins>Do NOT interact:</ins></samp>
 > - Under 15
-> - Proshippers, darkshippers
 > - Doubles of my ships and kins
-> - Just shitty people in general
+> - Idk just be nice to me, I like most people :3 
 
 ‼️ - <samp><ins> Links:</ins></samp>
 > [Strawpage](https://fellanamedfinn.straw.page) , [Guestbook](https://fellanamedfinn.atabook.org) , [Pronouns Page](https://en.pronouns.page/@fellanamedfinn) 
