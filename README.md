@@ -18,7 +18,7 @@
 > - ASD + IED, unfortunately dealing with auditory and visual hallucinations 
 
 🪓 - <samp><ins>Interests:</ins></samp>
-> American Psycho, The Boys, Call of Duty, The Amazing Digital Circus, Team Fortress 2, The Pitt, South Park, Dialtown, Paw Patrol
+> American Psycho, The Boys, Call of Duty, The Amazing Digital Circus, Team Fortress 2, The Pitt, South Park, Dialtown, Paw Patrol, Fight Club, Rainbow Six Seige, Marvel Rivals, Family Guy, Mortal Combat, Red Dead Redemption 2, fighter jets, taxidermy, bones, bugs, old cars and technology, gun models, 
 
 
 🦴 - <samp><ins>Ponytown:</ins></samp>
