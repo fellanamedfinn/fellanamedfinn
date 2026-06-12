@@ -1,17 +1,19 @@
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/YFJ6HSRC/Trending-GIF-confused-ryan-gosling-the-nice-guys.gif" alt="Trending GIF confused ryan gosling the nice guys" border="0"></a>
+<p align="center">
+<a href="https://ibb.co/ZRZFV8bp"><img src="https://i.ibb.co/twdv4s1T/Nice-Guys.jpg" alt="Nice-Guys" border="0"></a>
+</p>
 
-<h4 align="center"><samp>"Those are nice, huh? And they're not real, so they'll last forever."</samp></h4>
+<h4 align="center"><samp>"I think I'm invincible. It's the only thing that makes sense. I don't think I can die."</samp></h4>
 
 ---------------
 <h5><samp>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=fellanamedfinnE&color=green" alt="Profile Views" />
+  <img src="https://komarev.com/ghpvc/?username=fellanamedfinnE&color=blue" alt="Views" />
 </p>
 
   🦴 - <samp><ins>Basic info:</ins></samp>
 > - he / him / it's / itself, absolutely *no* feminine terms, and don't call me a femboy.
-> - Selfshipper/Yumeshipper
+> - Selfshipper/Yumeshipper, 
 > - MLM, FtM, Lithroflux, and a T4C preference.
 > - ASD + IED, working on a dignosis for 2 more.
 
@@ -36,11 +38,8 @@
 
 </samp></h5>
 
-![image (2)](https://github.com/user-attachments/assets/c4f903af-e8a8-40ad-b19b-8e9b07a16d81)
-<img width="99" height="56" alt="meat5" src="https://github.com/user-attachments/assets/89cb3178-4f34-489a-891c-328b3eefef69" />
-<img width="99" height="56" alt="vuic5c" src="https://github.com/user-attachments/assets/b2eec280-e105-4ef3-93bd-a932b645b26d" />
-![6mvqqu](https://github.com/user-attachments/assets/2a66c82e-a4ec-4772-ba7a-084541ee2b0c)
-<img width="99" height="55" alt="Tumblr_l_167690781333165" src="https://github.com/user-attachments/assets/ef08574c-8a60-4dfc-acf9-d03c3a9a9b7c" />
-![meat3](https://github.com/user-attachments/assets/050e6aa7-e487-4750-96e1-2767593714d9)
-<img width="99" height="56" alt="littlen" src="https://github.com/user-attachments/assets/b19e9fb9-e0d9-4a7f-a1b6-5018f808941e" />
-![3b5a30841a3e30268f59438628594ee3c7fd404c gifv](https://github.com/user-attachments/assets/e193bdd1-46e5-4cb7-8338-556b648ab025)
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/ycS9M8ys/tumblr-e9a4fdd4f11df5d68e590ded95650f03-720127f4-100.png" alt="tumblr e9a4fdd4f11df5d68e590ded95650f03 720127f4 100" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/kVf7PPPP/tumblr-cd8efd4860d19916f4672da6240521fc-d3eae8b3-100.png" alt="tumblr cd8efd4860d19916f4672da6240521fc d3eae8b3 100" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/JRMG1YC6/tumblr-b64747f0cf6b1d4bba7f156485c31fce-bbdca993-100.png" alt="tumblr b64747f0cf6b1d4bba7f156485c31fce bbdca993 100" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/8nVSxJzv/tumblr-2650e2871ac252d2968ba4f8d74efd51-56d74ba6-100.png" alt="tumblr 2650e2871ac252d2968ba4f8d74efd51 56d74ba6 100" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/KzKhKXng/tumblr-4f7243263a17739a28b4a9dfb6eaf33f-1005d641-100.png" alt="tumblr 4f7243263a17739a28b4a9dfb6eaf33f 1005d641 100" border="0"></a>
