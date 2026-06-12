@@ -1,6 +1,6 @@
-<p align="center">
-  <img src="https://i.ibb.co/YFJ6HSRC/Trending-GIF-confused-ryan-gosling-the-nice-guys.gif" alt="Trending GIF confused ryan gosling the nice guys" border="0">
-</p>
+<div style="text-align: center;">
+  <img src="https://i.ibb.co/YFJ6HSRC/Trending-GIF-confused-ryan-gosling-the-nice-guys.gif" alt="Description">
+</div>
 
 <h4 align="center"><samp>"Those are nice, huh? And they're not real, so they'll last forever."</samp></h4>
 
