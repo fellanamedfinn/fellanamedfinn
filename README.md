@@ -11,29 +11,29 @@
   <img src="https://komarev.com/ghpvc/?username=fellanamedfinnE&color=red" alt="Profile Views" />
 </p>
 
-  🥩 - <samp><ins>Basic info:</ins></samp>
+  🦴 - <samp><ins>Basic info:</ins></samp>
 > - he / him / it's / itself, absolutely *no* feminine terms, and don't call me a femboy.
-> - Selfshipper, fictionkin, physical therian, otherkin (feel free to ask about it!!)
-> - MLM, FtM, Nebularomantic + Lithromantic
-> - ASD + IED, unfortunately dealing with auditory and visual hallucinations 
+> - Selfshipper/Yumeshipper
+> - MLM, FtM, Lithroflux, and a T4C preference.
+> - ASD + IED, working on a dignosis for 2 more.
 
-🪓 - <samp><ins>Interests:</ins></samp>
+🦌 - <samp><ins>Interests:</ins></samp>
 > - Special interest: Military
 > - Basic interests: American Psycho, The Boys, Call of Duty, The Amazing Digital Circus, Team Fortress 2, The Pitt, South Park, Dialtown, Paw Patrol, Fight Club, Rainbow Six Seige, Marvel Rivals, Family Guy, Mortal Combat, Red Dead Redemption 2, The Last Of Us, Life Is Strange, Chilla's Art Games,fighter jets, taxidermy, bones, bugs, old cars and technology, gun models, analog horror, visual novels
 
 
-🦴 - <samp><ins>Ponytown:</ins></samp>
+🌲 - <samp><ins>Ponytown:</ins></samp>
 > - Usually sitting with friends, or in the CoD area on the safe server.
 > - I love to talk, I can just tend to be a little quiet :)
 > - Please don't fully cover me, but cuddles and hugs are appricated!!
 > - Please whisper to me!! I'm off tab a lot, and feel terrible when I miss peoples messages :((
 
-🩸 - <samp><ins>Do NOT interact:</ins></samp>
+🧳 - <samp><ins>Do NOT interact:</ins></samp>
 > - Under 15
 > - Doubles of my ships and kins
 > - Idk just be nice to me, I like most people :3 
 
-‼️ - <samp><ins> Links:</ins></samp>
+🪖 - <samp><ins> Links:</ins></samp>
 > [Strawpage](https://fellanamedfinn.straw.page) , [Guestbook](https://fellanamedfinn.atabook.org) , [Pronouns Page](https://en.pronouns.page/@fellanamedfinn) 
 
 </samp></h5>
