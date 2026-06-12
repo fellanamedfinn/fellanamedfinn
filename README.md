@@ -19,7 +19,7 @@
 
   🦴 - <samp><ins>Basic info:</ins></samp>
 > - he / him / it's / itself, absolutely *no* feminine terms, and don't call me a femboy.
-> - Selfshipper/Yumeshipper, 
+> - Selfshipper/Yumeshipper, [Yumeship Info :)](https://fellanamedfinnyumeships.straw.page)
 > - MLM, FtM, Lithroflux, and a T4C preference.
 > - ASD + IED, working on a dignosis for 2 more.
 
