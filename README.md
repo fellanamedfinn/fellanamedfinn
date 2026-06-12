@@ -6,7 +6,7 @@
 
 ---------------
 <p align="center">
-<img src="https://i.ibb.co/pj0VQDB2/IMG-6611.png" alt="Description" width="100">
+<img src="https://i.ibb.co/qFg3TRg7/pony-town-finnigan-sign-my-ata-trot-padded-16x.gif" alt="Description" width="100">
 </p>
 
 
