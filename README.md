@@ -8,7 +8,7 @@
 <h5><samp>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=fellanamedfinnE&color=#964B00" alt="Profile Views" />
+  <img src="https://komarev.com/ghpvc/?username=fellanamedfinnE&color=green" alt="Profile Views" />
 </p>
 
   🦴 - <samp><ins>Basic info:</ins></samp>
