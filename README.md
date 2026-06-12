@@ -8,7 +8,7 @@
 <h5><samp>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=fellanamedfinnE&color=red" alt="Profile Views" />
+  <img src="https://komarev.com/ghpvc/?username=fellanamedfinnE&color=brown" alt="Profile Views" />
 </p>
 
   🦴 - <samp><ins>Basic info:</ins></samp>
@@ -19,7 +19,7 @@
 
 🦌 - <samp><ins>Interests:</ins></samp>
 > - Special interest: Military
-> - Basic interests: American Psycho, The Boys, Call of Duty, The Amazing Digital Circus, Team Fortress 2, The Pitt, South Park, Dialtown, Paw Patrol, Fight Club, Rainbow Six Seige, Marvel Rivals, Family Guy, Mortal Combat, Red Dead Redemption 2, The Last Of Us, Life Is Strange, Chilla's Art Games,fighter jets, taxidermy, bones, bugs, old cars and technology, gun models, analog horror, visual novels
+> - Basic interests: American Psycho, Lars and The Real Girl, Drive, The Nice Guys, Project Hail Mary, pretty much every Ryan Gosling movie ever, The Boys, Call of Duty, The Amazing Digital Circus, Team Fortress 2, The Pitt, South Park, Dialtown, Paw Patrol, Fight Club, Rainbow Six Seige, Marvel Rivals, Family Guy, Mortal Combat, Red Dead Redemption 2, The Last Of Us, Life Is Strange, Chilla's Art Games,fighter jets, taxidermy, bones, bugs, old cars and technology, gun models, analog horror, visual novels
 
 
 🌲 - <samp><ins>Ponytown:</ins></samp>
@@ -30,7 +30,7 @@
 
 🧳 - <samp><ins>Do NOT interact:</ins></samp>
 > - Under 15
-> - Doubles of my ships and kins
+> - Doubles of my ships
 > - Idk just be nice to me, I like most people :3 
 
 🪖 - <samp><ins> Links:</ins></samp>
