@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://kommodo.ai/i/ue2xbQdBDbqpAI71m56m" alt="Trending GIF confused ryan gosling the nice guys">
+  <img src="./Trending GIF confused ryan gosling the nice guys.gif" width="500" alt="GIF">
 </p>
 
 <h4 align="center"><samp>"Those are nice, huh? And they're not real, so they'll last forever."</samp></h4>
